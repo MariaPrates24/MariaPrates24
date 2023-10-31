@@ -1,0 +1,6 @@
+- 👋 Olá, Sou a @MariaPrates24
+- 👀 Sou interessada em aprender mais a cada dia, principalmente área da tecnologia
+- 🌱 Voltei a aprender novas linguagens de programação ...
+- 💞️ Adoro ajudar e ser útil ao próximo
+- 📫 Para melhores contatos uso o e-mail: mariaprates.novo24@outlook.com.br.
+- :kissing_closed_eyes: Espero ser mais produtiva a cada dia, nem que seja para o meu próprio favorecimento.
